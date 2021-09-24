@@ -1,0 +1,2 @@
+# WarThunderGM
+Free for all
